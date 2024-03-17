@@ -116,7 +116,7 @@ Later on the link was customized using the well-known URL shortener and customiz
 
 Aarav Kataria <br>
 aarav6398@gmail.com <br>
-> [LinkedIn](www.linkedin.com/in/aarav-kataria-aa60b3255?)
+> [LinkedIn](https://www.linkedin.com/in/aarav-kataria-aa60b3255?)
 <br><br>
 <!-- ................................................................................................................................. -->
 
